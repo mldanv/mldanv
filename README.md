@@ -22,6 +22,7 @@ I like all of beautiful nature,
 I like sports,
 
 And I like enjoy various creation.
+____________________________________________________________________________________________________________________________________________________________________
 
 "Karena masa depan sungguh ada dan harapanmu tidak akan hilang." -Amsal 23:18
 
