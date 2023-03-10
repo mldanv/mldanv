@@ -22,6 +22,9 @@ I like all of beautiful nature,
 I like sports,
 
 And I like enjoy various creation.
+
+![766c651b-8954-4384-a4dd-4d472f0adf4b](https://user-images.githubusercontent.com/127525093/224363573-654db0d9-b3b8-483e-a5ab-bf646be47210.jpg)
+
 ____________________________________________________________________________________________________________________________________________________________________
 
 "Karena masa depan sungguh ada dan harapanmu tidak akan hilang." -Amsal 23:18
@@ -34,4 +37,4 @@ ________________________________________________________________________________
 
 "Tuhan akan berperang untuk kamu, dan kamu akan diam saja." -Keluaran 14:14
 
-![WhatsApp Image 2023-03-10 at 22 32 16](https://user-images.githubusercontent.com/127525093/224359380-17416dd4-dfb3-4866-880e-7fb93f8bfb12.jpeg)
+
